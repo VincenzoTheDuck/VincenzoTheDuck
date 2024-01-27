@@ -1,0 +1,4 @@
+- sup my name is duck
+- i like scratch and roblox coding, and i'm interested in making mindustry mods
+- he/him
+- fun fact, i'm pan
